@@ -1,7 +1,19 @@
 # Mi_Proyecto
 
-Sebas
 
-jordan
+
+
+
+
+
+
+
+
+
+
+
+
+
+Juan Jose Alvarez
 
 
