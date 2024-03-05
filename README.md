@@ -4,7 +4,7 @@ sebas
 
 jordan
 
-
+Leidy Echeverri
 
 
 
@@ -17,4 +17,4 @@ Alison Gonzalez Herrera
 Juan Jose Alvarez
 
 
-jhoan sebastian sanchez ocampo.
+jhoan sebastian sanchez ocampo
