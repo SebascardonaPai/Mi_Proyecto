@@ -1,2 +1,19 @@
 # Mi_Proyecto
-Nelson Arley Vilada Garcia
+
+sebas
+
+jordan
+
+
+
+
+
+
+
+Nelson Arley Villada Garcia
+
+
+
+Juan Jose Alvarez
+
+
